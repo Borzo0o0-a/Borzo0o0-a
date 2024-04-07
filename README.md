@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Borzo0o0-a
-- 👀 I’m interested in Android Mobile Programming Languages ...
+- 👀 I’m interested in Android Mobile Language Programmings ...
 - 🌱 I’m currently learning Kotlin!
 - 💞️ I’m looking to collaborate on Logo Designers, Mobile Programmers, Familiar-with-Client-and-Servers programmers, MySql, etc (Generally anything related to Anrdoid Programming)
 - 📫 How to reach me : Phone no (&WhatsApp) : +98 919 973 5135      Telegram's ID: Borzo0o0 <-- I check this one all the time!
